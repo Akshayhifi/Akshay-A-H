@@ -1,5 +1,5 @@
 # Akshay-A-H
-i am softwear Engineer
+i am student
 # 💫 About Me:
 i am currently studing<br>
 
